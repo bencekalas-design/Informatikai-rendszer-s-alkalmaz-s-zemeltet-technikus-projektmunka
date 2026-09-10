@@ -1,0 +1,1 @@
+# Informatikai-rendszer-s-alkalmaz-s-zemeltet-technikus-projektmunka
